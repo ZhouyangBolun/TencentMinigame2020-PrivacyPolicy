@@ -1,0 +1,1 @@
+# TencentMinigame2020-PrivacyPolicy
